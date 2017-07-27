@@ -1,1 +1,0 @@
-# sazal-ns.github.io
